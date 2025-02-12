@@ -22,4 +22,5 @@
 
 ### 📫 Conéctate conmigo  
 🔗 [LinkedIn](https://www.linkedin.com/in/adri%C3%A1n-garc%C3%ADa-rodr%C3%ADguez-8b0704338/)
+
 💬 Siempre abierto a colaborar en proyectos interesantes.  
